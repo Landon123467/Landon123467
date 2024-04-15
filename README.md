@@ -1,4 +1,4 @@
-### Current Engineering Student At Missouri State University
+### Current Construction Management Student At Missouri State University
 
 <!--
 **Landon123467/Landon123467** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
